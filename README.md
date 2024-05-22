@@ -1,1 +1,1 @@
-# programowanie7
+# s27256 Karol Hoppe
